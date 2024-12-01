@@ -1,2 +1,1 @@
-# Money-Dogs-Auto-Clicker
-Money-Dogs-Auto-Clicker
+# Gemz-Auto-Clicker-Powerful
